@@ -1,1 +1,3 @@
 # PLUGGING-INTO-THE-FUTURE-AN-EXPLORATION-OF-ELECTRICITY-CONSUMPTION-
+
+VIDEO LINK-https://youtube.com/watch?v=5ICs0k6Krcg&feature=share
